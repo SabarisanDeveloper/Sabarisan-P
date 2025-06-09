@@ -1,2 +1,0 @@
-# Sabarisan-P
-developer profile
